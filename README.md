@@ -1,0 +1,1 @@
+# -Hackintosh_Fujitsu_LIFEBOOK_A357_OC_EFI
